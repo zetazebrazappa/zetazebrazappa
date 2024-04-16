@@ -1,5 +1,2 @@
 - 👋 Hi, I’m @zetazebrazappa
-- 👀 I’m interested in batman
-- 🌱 I’m currently learning bible
-- 💞️ I’m looking for jesus
 - 📫 mattia@zelando.com
